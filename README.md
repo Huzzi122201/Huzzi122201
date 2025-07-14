@@ -50,9 +50,9 @@
 
 ### 📫 Get in Touch
 
-- ✉️ Email: `huzaifa.asif@example.com`
-- 🔗 [LinkedIn](https://www.linkedin.com/in/huzaifa-asif/)  
-- 🌐 [Portfolio](https://your-portfolio-site.com)  
+- ✉️ Email: `huzaifaasif80000@gmail.com`
+- 🔗 [LinkedIn](https://www.linkedin.com/in/huzaifa-asif121)  
+   
 
 ---
 
